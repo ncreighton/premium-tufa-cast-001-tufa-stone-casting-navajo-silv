@@ -1,0 +1,2 @@
+# premium-tufa-cast-001-tufa-stone-casting-navajo-silv
+Tired of losing track of your tufa stone molds, silver melt temperatures, and cultural design notes mid-project? This Notion planner turns chaos into a repeatable, sacred workflow.  Stop scrambling through scattered sketches and scraps of paper. The Tufa Stone Casting Navajo Silver Process Planner organizes every step—from stone selection to final
